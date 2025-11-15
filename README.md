@@ -1,2 +1,0 @@
-# Ndowa
-Tudo de melhor
